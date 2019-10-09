@@ -1,4 +1,2 @@
-# Ai
-## dhfkasd
-- fjsdaf
-- adfkvgj
+# 我是吳沅騏 因為陳俊佑太懶所以跟我共用同一個帳號
+## 
